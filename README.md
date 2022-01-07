@@ -1,5 +1,15 @@
-## Nintendult
+## nintendult 🎀
 
 Hi there.
 
-You can find me on [Twitter](https://twitter.com/Nintendult). You can find me on other places, too, but I won't bore you with links.
+[Twitter](https://twitter.com/nintendult)
+[Instagram](https://www.instagram.com/nintendult)
+[YouTube](https://www.youtube.com/nintendult)
+
+[Bandcamp](https://nintendult.bandcamp.com/)
+[SoundCloud](https://soundcloud.com/nintendult)
+
+[N&W GamesFestival Discord](https://discord.gg/MVKSUNpqw2)
+[N&W Ricochet Social](steam://connect/35.245.6.170:27015) (Limited uptime, see Discord above for details)
+
+This page is mostly just a placeholder.
