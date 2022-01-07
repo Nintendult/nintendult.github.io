@@ -7,8 +7,7 @@ Hi there.
 [Instagram](https://www.instagram.com/nintendult)
 
 [YouTube](https://www.youtube.com/nintendult)
-
-
+\n\n
 [Bandcamp](https://nintendult.bandcamp.com/)
 
 [SoundCloud](https://soundcloud.com/nintendult)
