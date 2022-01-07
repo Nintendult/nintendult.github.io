@@ -2,18 +2,13 @@
 
 Hi there.
 
-[Twitter](https://twitter.com/nintendult)
+[Twitter](https://twitter.com/nintendult)</br>
+[Instagram](https://www.instagram.com/nintendult)</br>
+[YouTube](https://www.youtube.com/nintendult)</br>
 
-[Instagram](https://www.instagram.com/nintendult)
+[Bandcamp](https://nintendult.bandcamp.com/)</br>
+[SoundCloud](https://soundcloud.com/nintendult)</br>
 
-[YouTube](https://www.youtube.com/nintendult)
-\n\n
-[Bandcamp](https://nintendult.bandcamp.com/)
-
-[SoundCloud](https://soundcloud.com/nintendult)
-
-[N&W GamesFestival Discord](https://discord.gg/MVKSUNpqw2)
-
-[N&W Ricochet Social](steam://connect/35.245.6.170:27015) (Limited uptime, see Discord above for details)
+[N&W GamesFestival Discord](https://discord.gg/MVKSUNpqw2)</br>
 
 This page is mostly just a placeholder.
