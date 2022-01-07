@@ -18,4 +18,4 @@ Hi there. This page is mostly just a placeholder.
 
 **Discord:**
 
-[N&W GamesFestival](https://discord.gg/MVKSUNpqw2)</br>
+[N&W GamesFestival](https://discord.gg/MVKSUNpqw2)
