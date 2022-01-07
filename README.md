@@ -1,8 +1,8 @@
 ## nintendult 🎀
 
-Hi there.
+Hi there. This page is mostly just a placeholder.
 
-Social media:
+**Social media:**
 
 [Twitter](https://twitter.com/nintendult)
 
@@ -10,15 +10,12 @@ Social media:
 
 [YouTube](https://www.youtube.com/nintendult)
 
-Music:
+**Music:**
 
 [Bandcamp](https://nintendult.bandcamp.com/)
 
 [SoundCloud](https://soundcloud.com/nintendult)
 
-Discord:
+**Discord:**
 
 [N&W GamesFestival Discord](https://discord.gg/MVKSUNpqw2)</br>
-
-
-This page is mostly just a placeholder.
