@@ -16,7 +16,7 @@ Hi there. This is a placeholder page. Don't mind the oddities.
 
 [SoundCloud](https://soundcloud.com/nintendult)
 
-**N&W GamesFestival:**
+**N&W projects:**
 
 [N&W GamesFestival Discord](https://discord.gg/MVKSUNpqw2)
 
