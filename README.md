@@ -20,4 +20,4 @@ Hi there. This is a placeholder page. Don't mind the oddities.
 
 [N&W GamesFestival](https://discord.gg/MVKSUNpqw2)
 
-[N&W Ricochet Social](/ricochet) (This link will immediately launch Steam and Ricochet.)
+[N&W Ricochet Social](/ricochet)
