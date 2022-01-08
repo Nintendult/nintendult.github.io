@@ -2,7 +2,7 @@
 
 This is a server for the game [Ricochet](https://store.steampowered.com/app/60/Ricochet/).
 
-[CLICK HERE](steam://connect/ricochet.nintendult.xyz) to immediately launch Ricochet and join the server. This also launches Steam.
+[CLICK HERE](steam://connect/ricochet.nintendult.xyz) to *immediately launch Ricochet* and join the server. This also launches Steam.
 
 This server is operated on behalf of the [N&W GamesFestival Discord](https://discord.gg/MVKSUNpqw2) community.
 
