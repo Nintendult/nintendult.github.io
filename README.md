@@ -16,8 +16,8 @@ Hi there. This is a placeholder page. Don't mind the oddities.
 
 [SoundCloud](https://soundcloud.com/nintendult)
 
-**Discord:**
+**N&W GamesFestival:**
 
-[N&W GamesFestival](https://discord.gg/MVKSUNpqw2)
+[N&W GamesFestival Discord](https://discord.gg/MVKSUNpqw2)
 
 [N&W Ricochet Social](/ricochet)
