@@ -1,6 +1,6 @@
 ## nintendult 🎀
 
-Hi there. This page is mostly just a placeholder. Please ignore the URL on the left IDK how to change it
+Hi there. This is a placeholder page. Don't mind the oddities.
 
 **Social media:**
 
