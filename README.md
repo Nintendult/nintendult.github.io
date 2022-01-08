@@ -19,3 +19,5 @@ Hi there. This is a placeholder page. Don't mind the oddities.
 **Discord:**
 
 [N&W GamesFestival](https://discord.gg/MVKSUNpqw2)
+
+[N&W Ricochet Social](steam://connect/ricochet.nintendult.xyz) (limited uptime)
