@@ -1,6 +1,10 @@
 ## nintendult 🎀
 
-Hi there. This is a placeholder page. Don't mind the oddities.
+**(He/him | any pronouns)**
+
+Any posts on my social media profiles do not represent the thoughts or beliefs of any associated employer, organization, or affiliated entity. 
+
+Don't mind the oddities in this page.
 
 **Social media:**
 
