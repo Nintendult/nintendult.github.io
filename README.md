@@ -1,6 +1,6 @@
 ## nintendult 🎀
 
-**(He/him | any pronouns)**
+(He/him / any pronouns)
 
 Any posts on my social media profiles do not represent the thoughts or beliefs of any associated employer, organization, or affiliated entity. 
 
