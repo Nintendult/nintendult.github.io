@@ -1,10 +1,8 @@
-## nintendult 🎀
+## Welcome
 
-(He/him / any pronouns)
+(any pronouns)
 
 Any posts on my social media profiles do not represent the thoughts or beliefs of any associated employer, organization, or affiliated entity. 
-
-Don't mind the oddities in this page.
 
 **Social media:**
 
