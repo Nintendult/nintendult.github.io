@@ -8,6 +8,8 @@ Any posts on my social media profiles do not represent the thoughts or beliefs o
 
 [Twitter](https://twitter.com/nintendult)
 
+[Mastodon](https://mastodon.social/@Nintendult)
+
 [Instagram](https://www.instagram.com/nintendult)
 
 [YouTube](https://www.youtube.com/nintendult)
