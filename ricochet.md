@@ -12,5 +12,6 @@ If you would like to see the server open more often, you can donate to pay for s
 
 [![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/W7W4ADKL0)
 
+----
 
 [Back to home page](/)
