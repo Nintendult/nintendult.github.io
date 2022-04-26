@@ -7,3 +7,7 @@
 [Instagram](https://www.instagram.com/nintendult)
 
 [YouTube](https://www.youtube.com/nintendult)
+
+----
+
+[Back to home page](/)
