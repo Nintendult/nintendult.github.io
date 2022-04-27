@@ -11,3 +11,7 @@ Any posts on my social media profiles do not represent the thoughts or beliefs o
 [MUSIC](/music)
 
 [N&W PROJECTS](/gaming)
+
+----
+
+2022 ntndlt
