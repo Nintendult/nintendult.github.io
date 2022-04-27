@@ -6,8 +6,8 @@ Any posts on my social media profiles do not represent the thoughts or beliefs o
 
 ----
 
-[**SOCIAL MEDIA**](/social-media)
+[SOCIAL MEDIA](/social-media)
 
-[**MUSIC**](/music)
+[MUSIC](/music)
 
-[**N&W PROJECTS**](/gaming)
+[N&W PROJECTS](/gaming)
