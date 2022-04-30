@@ -8,6 +8,8 @@
 
 [YouTube](https://www.youtube.com/nintendult)
 
+[Tumblr](https://blog.nintendult.xyz/)
+
 ----
 
 [Back to home page](/)
