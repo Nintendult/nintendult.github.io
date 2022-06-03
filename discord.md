@@ -2,8 +2,6 @@
 
 I am an administrator for the following Discord communities:
 
-[Daft Punk (Mod)](https://discord.gg/daftpunk)
-
 [French House Hub](https://discord.gg/aeQnbqNKwB)
 
 [N&W GamesFestival](https://discord.gg/MVKSUNpqw2)
