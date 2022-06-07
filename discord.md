@@ -6,8 +6,6 @@ I am an administrator for the following Discord communities:
 
 [N&W GamesFestival](https://discord.gg/MVKSUNpqw2)
 
-[DENTILNUT](https://discord.gg/sx8xpjxy88)
-
 I am a moderator for the following Discord communities:
 
 [Daft Punk](https://discord.gg/daftpunk)
