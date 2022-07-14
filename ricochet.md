@@ -1,5 +1,7 @@
 ## N&W Ricochet Social
 
+**NOTE: this project is currently vaulted.**
+
 This is a server for the game [Ricochet](https://store.steampowered.com/app/60/Ricochet/).
 
 [CLICK HERE](steam://connect/ricochet.nintendult.xyz) to *immediately launch Ricochet* and join the server. This also launches Steam.
