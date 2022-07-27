@@ -11,11 +11,11 @@ Also available on music streaming services such as:
 
 [Apple Music](https://music.apple.com/artist/nintendult/1636387613)
 
-[Tidal](https://tidal.com/browse/artist/33454908)
+[Spotify](https://open.spotify.com/artist/3hQhMAoWq0wdXSmOlfNimf)
 
 [Deezer](https://www.deezer.com/artist/177736927)
 
-Spotify (coming soon)
+[Tidal](https://tidal.com/browse/artist/33454908)
 
 Amazon Music (coming soon)
 
