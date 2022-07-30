@@ -2,9 +2,9 @@
 ---
 
 @import "{{ site.theme }}";
-header {
-display: none;
-}
-main-content {
-  text-align: left;
-}
+#header { # Fuck this 
+#display: none;
+#}
+#main-content {
+#  text-align: left;
+#}
