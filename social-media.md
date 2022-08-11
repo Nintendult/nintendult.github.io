@@ -10,6 +10,8 @@
 
 [Tumblr](https://blog.nintendult.xyz/)
 
+[Twitch](https://www.twitch.tv/nintendult)
+
 ----
 
 [Back to home page](/)
