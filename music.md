@@ -4,7 +4,7 @@
 
 [SoundCloud](https://soundcloud.com/nintendult)
 
-[Mixcloud (DJ SETS)](https://www.mixcloud.com/nintendult/)
+[Mixcloud (DJ Sets and Radio Shows)](https://www.mixcloud.com/nintendult/)
 
 
 Also available on music streaming services such as:
