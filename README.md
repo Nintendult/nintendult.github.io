@@ -6,12 +6,14 @@ Any posts on my social media profiles do not represent the thoughts or beliefs o
 
 ----
 
-[SOCIAL MEDIA](/social-media)
-
 [MUSIC](/music)
+
+[MERCH](https://ntndlt-merch.creator-spring.com/)
+
+[SOCIAL MEDIA](/social-media)
 
 [N&W GAMESFESTIVAL DISCORD](https://discord.gg/MVKSUNpqw2)
 
 ----
 
-2022 ntndlt
+2022 NTNDLT FACTORY
