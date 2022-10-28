@@ -2,11 +2,11 @@
 
 [Twitter](https://twitter.com/nintendult)
 
+[Tumblr](https://blog.nintendult.xyz/)
+
 [Mastodon](https://mastodon.social/@Nintendult)
 
 [Instagram](https://www.instagram.com/nintendult)
-
-[Tumblr](https://blog.nintendult.xyz/)
 
 [YouTube](https://www.youtube.com/nintendult)
 
