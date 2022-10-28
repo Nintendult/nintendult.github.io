@@ -6,9 +6,9 @@
 
 [Instagram](https://www.instagram.com/nintendult)
 
-[YouTube](https://www.youtube.com/nintendult)
-
 [Tumblr](https://blog.nintendult.xyz/)
+
+[YouTube](https://www.youtube.com/nintendult)
 
 [Twitch](https://www.twitch.tv/nintendult)
 
