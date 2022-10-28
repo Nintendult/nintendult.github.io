@@ -4,9 +4,9 @@
 
 [Tumblr](https://blog.nintendult.xyz/)
 
-[Mastodon](https://mastodon.social/@Nintendult)
-
 [Instagram](https://www.instagram.com/nintendult)
+
+[Mastodon](https://mastodon.social/@Nintendult)
 
 [YouTube](https://www.youtube.com/nintendult)
 
