@@ -12,6 +12,8 @@
 
 [Twitch](https://www.twitch.tv/nintendult)
 
+[Discord (N&W GamesFestival](https://discord.gg/MVKSUNpqw2)
+
 ----
 
 [Back to home page](/)
