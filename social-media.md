@@ -4,6 +4,8 @@
 
 [Tumblr](https://blog.nintendult.xyz/)
 
+[Cohost](https://cohost.org/nintendult)
+
 [Instagram](https://www.instagram.com/nintendult)
 
 [Mastodon](https://mastodon.social/@Nintendult)
