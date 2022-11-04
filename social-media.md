@@ -12,11 +12,11 @@ ___Text___
 
 [Mastodon](https://mastodon.social/@Nintendult)
 
-[Twitter](https://twitter.com/nintendult)
+[Cohost](https://cohost.org/nintendult)
 
 [Tumblr](https://blog.nintendult.xyz/)
 
-[Cohost](https://cohost.org/nintendult)
+[Twitter](https://twitter.com/nintendult)
 
 
 ___Chat___
