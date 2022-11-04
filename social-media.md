@@ -1,20 +1,27 @@
 ## Social media
 
+___Video___
+
+[YouTube](https://www.youtube.com/nintendult)
+
+[Twitch](https://www.twitch.tv/nintendult)
+
+___Text___
+
+[Instagram](https://www.instagram.com/nintendult)
+
+[Mastodon](https://mastodon.social/@Nintendult)
+
 [Twitter](https://twitter.com/nintendult)
 
 [Tumblr](https://blog.nintendult.xyz/)
 
 [Cohost](https://cohost.org/nintendult)
 
-[Instagram](https://www.instagram.com/nintendult)
 
-[Mastodon](https://mastodon.social/@Nintendult)
+___Chat___
 
-[YouTube](https://www.youtube.com/nintendult)
-
-[Twitch](https://www.twitch.tv/nintendult)
-
-[Discord (N&W GamesFestival)](https://discord.gg/MVKSUNpqw2)
+[N&W GamesFestival Discord](https://discord.gg/MVKSUNpqw2)
 
 ----
 
