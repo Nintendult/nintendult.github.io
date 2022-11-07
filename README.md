@@ -13,7 +13,7 @@ Any posts on my social media profiles do not represent the thoughts or beliefs o
 [SOCIAL MEDIA](/social-media)
 
 
-<a rel="me" href="https://mastodon.social/@Nintendult">Mastodon</a>
+
 ----
 
 2022 NTNDLT FACTORY
