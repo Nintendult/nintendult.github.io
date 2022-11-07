@@ -10,7 +10,7 @@ ___Text___
 
 [Instagram](https://www.instagram.com/nintendult)
 
-[Mastodon](https://mastodon.social/@Nintendult)
+<a rel="me" href="https://mastodon.social/@Nintendult">Mastodon</a>
 
 [Cohost](https://cohost.org/nintendult)
 
