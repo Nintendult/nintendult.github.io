@@ -1,18 +1,26 @@
-## Welcome
+## Hello
 
 (any pronouns)
 
-Any posts on my social media profiles do not represent the thoughts or beliefs of any associated employer, organization, or affiliated entity. 
+----
+
+[MUSIC & MERCH](https://linktr.ee/nintendult)
 
 ----
 
-[MUSIC](/music)
+_Social media_
 
-[MERCH](https://ntndlt-merch.creator-spring.com/)
+[Instagram](https://www.instagram.com/nintendult)
 
-[SOCIAL MEDIA](/social-media)
+<a rel="me" href="https://mastodon.social/@Nintendult">Mastodon</a>
 
+[Cohost](https://cohost.org/nintendult)
 
+[Tumblr](https://blog.nintendult.xyz/)
+
+[Twitter](https://twitter.com/nintendult)
+
+[N&W GamesFestival Discord](https://discord.gg/MVKSUNpqw2)
 
 ----
 
