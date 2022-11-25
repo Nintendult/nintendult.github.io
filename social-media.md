@@ -21,8 +21,6 @@ ___Text___
 
 ___Chat___
 
-[NTNDLT FACTORY Discord](https://discord.gg/w3YRargKtz)
-
 [N&W GamesFestival Discord](https://discord.gg/MVKSUNpqw2)
 
 ----
