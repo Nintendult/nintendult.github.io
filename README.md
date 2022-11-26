@@ -20,8 +20,6 @@ _Social media_
 
 [Twitter](https://twitter.com/nintendult)
 
-[N&W GamesFestival Discord](https://discord.gg/MVKSUNpqw2)
-
 ----
 
 2022 NTNDLT FACTORY
