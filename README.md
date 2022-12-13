@@ -6,8 +6,6 @@
 
 ## ["From an end to a start" PRE-SAVE](https://distrokid.com/hyperfollow/nintendult/from-an-end-to-a-start)
 
-----
-
 [MUSIC & MERCH](https://linktr.ee/nintendult)
 
 ----
