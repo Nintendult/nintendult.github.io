@@ -4,7 +4,7 @@
 
 ----
 
-[**PRE-SAVE "From an end to a start" ALBUM**](https://distrokid.com/hyperfollow/nintendult/from-an-end-to-a-start)
+[PRE-SAVE "From an end to a start" ALBUM](https://distrokid.com/hyperfollow/nintendult/from-an-end-to-a-start)
 
 [MUSIC & MERCH](https://linktr.ee/nintendult)
 
