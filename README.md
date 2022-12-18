@@ -16,11 +16,11 @@ _Social media_
 
 <a rel="me" href="https://mastodon.social/@Nintendult">Mastodon</a>
 
-[Cohost](https://cohost.org/nintendult)
-
 [Tumblr](https://blog.nintendult.xyz/)
 
 [Twitter](https://twitter.com/nintendult)
+
+[More](/all-socials)
 
 ----
 
