@@ -20,7 +20,7 @@ _Social media_
 
 [Twitter](https://twitter.com/nintendult)
 
-[More](/social-media)
+[All socials](/social-media)
 
 ----
 
