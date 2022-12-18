@@ -1,12 +1,7 @@
-## Social media
+## All social media
 
-___Video___
+I cannot guarantee that all of these pages will be consistently active, but this is every account I have which I can remember making.
 
-[YouTube](https://www.youtube.com/nintendult)
-
-[Twitch](https://www.twitch.tv/nintendult)
-
-___Text___
 
 [Instagram](https://www.instagram.com/nintendult)
 
@@ -16,10 +11,21 @@ ___Text___
 
 [Tumblr](https://blog.nintendult.xyz/)
 
+[YouTube](https://www.youtube.com/nintendult)
+
+[Twitch](https://www.twitch.tv/nintendult)
+
+[TikTok](https://www.tiktok.com/@nintendult)
+
+[Reddit](https://www.reddit.com/user/ntndlt)
+
+Hive Social - @nintendult
+
+[Newgrounds](https://nintendult.newgrounds.com/) (I didn't even know I had this)
+
+[Last.fm](https://www.last.fm/user/Nintendult)
+
 [Twitter](https://twitter.com/nintendult)
-
-
-___Chat___
 
 [N&W GamesFestival Discord](https://discord.gg/MVKSUNpqw2)
 
