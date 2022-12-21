@@ -18,8 +18,6 @@ _Social media_
 
 [Tumblr](https://blog.nintendult.xyz/)
 
-[Twitter](https://twitter.com/nintendult)
-
 [All socials](/social-media)
 
 ----
