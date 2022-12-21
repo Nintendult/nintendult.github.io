@@ -21,11 +21,11 @@ I cannot guarantee that all of these pages will be consistently active, but this
 
 Hive Social - @nintendult
 
-[Newgrounds](https://nintendult.newgrounds.com/) (I didn't even know I had this)
+[Newgrounds](https://nintendult.newgrounds.com/)
 
 [Last.fm](https://www.last.fm/user/Nintendult)
 
-[Twitter](https://twitter.com/nintendult)
+[Twitter](https://twitter.com/nintendult) (New music notifications only)
 
 [N&W GamesFestival Discord](https://discord.gg/MVKSUNpqw2)
 
