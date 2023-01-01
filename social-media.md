@@ -5,10 +5,7 @@ I cannot guarantee that all of these pages will be consistently active, but this
 
 [Instagram](https://www.instagram.com/nintendult)
 
-
-<a rel="me" href="https://social.nintendult.xyz/@nintendult">Mastodon</a>
-
-<a rel="me" href="https://mastodon.social/@Nintendult">Mastodon (Alt)</a>
+<a rel="me" href="https://mastodon.social/@Nintendult">Mastodon</a>
 
 [Cohost](https://cohost.org/nintendult)
 
