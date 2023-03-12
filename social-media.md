@@ -19,15 +19,13 @@ I cannot guarantee that all of these pages will be consistently active, but this
 
 [Reddit](https://www.reddit.com/user/ntndlt)
 
-Hive Social - @nintendult
-
 [Newgrounds](https://nintendult.newgrounds.com/)
 
 [Last.fm](https://www.last.fm/user/Nintendult)
 
-[Twitter](https://twitter.com/nintendult) (New music notifications only)
+[Twitter](https://twitter.com/nintendult) (Reposts from Mastodon and new music notifications)
 
-[N&W GamesFestival Discord](https://discord.gg/MVKSUNpqw2)
+[N&W GamesFestival Discord](https://discord.gg/MVKSUNpqw2) (ostensibly a gaming community)
 
 ----
 
