@@ -23,7 +23,7 @@ I cannot guarantee that all of these pages will be consistently active, but this
 
 [Last.fm](https://www.last.fm/user/Nintendult)
 
-[Twitter](https://twitter.com/nintendult) (Reposts from Mastodon and new music notifications)
+[Twitter](https://twitter.com/nintendult) (music notifications)
 
 [N&W GamesFestival Discord](https://discord.gg/MVKSUNpqw2) (ostensibly a gaming community)
 
