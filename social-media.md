@@ -1,13 +1,11 @@
 ## All social media
 
-I cannot guarantee that all of these pages will be consistently active, but this is every account I have which I can remember making.
+I cannot guarantee that all of these pages will be consistently active.
 
 
 [Instagram](https://www.instagram.com/nintendult)
 
 <a rel="me" href="https://mastodon.social/@Nintendult">Mastodon</a>
-
-[Cohost](https://cohost.org/nintendult)
 
 [Tumblr](https://blog.nintendult.xyz/)
 
@@ -20,6 +18,8 @@ I cannot guarantee that all of these pages will be consistently active, but this
 [Reddit](https://www.reddit.com/user/ntndlt)
 
 [Newgrounds](https://nintendult.newgrounds.com/)
+
+[Cohost](https://cohost.org/nintendult)
 
 [Last.fm](https://www.last.fm/user/Nintendult)
 
