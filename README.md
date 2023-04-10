@@ -14,8 +14,6 @@ _Social media_
 
 <a rel="me" href="https://mastodon.social/@Nintendult">Mastodon</a>
 
-[Tumblr](https://blog.nintendult.xyz/)
-
 [All socials](/social-media)
 
 ----
