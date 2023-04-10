@@ -17,10 +17,6 @@ I cannot guarantee that all of these pages will be consistently active.
 
 [Reddit](https://www.reddit.com/user/ntndlt)
 
-[Newgrounds](https://nintendult.newgrounds.com/)
-
-[Cohost](https://cohost.org/nintendult)
-
 [Last.fm](https://www.last.fm/user/Nintendult)
 
 [Twitter](https://twitter.com/nintendult) (music notifications)
