@@ -15,12 +15,6 @@ I cannot guarantee that all of these pages will be consistently active.
 
 [TikTok](https://www.tiktok.com/@nintendult)
 
-[Reddit](https://www.reddit.com/user/ntndlt)
-
-[Last.fm](https://www.last.fm/user/Nintendult)
-
-[N&W GamesFestival Discord](https://discord.gg/MVKSUNpqw2) (ostensibly a gaming community)
-
 ----
 
 [Back to home page](/)
