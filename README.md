@@ -4,7 +4,7 @@
 
 ----
 
-[MUSIC & MERCH](https://linktr.ee/nintendult)
+[MUSIC](https://linktr.ee/nintendult)
 
 ----
 
