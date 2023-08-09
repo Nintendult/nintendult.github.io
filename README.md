@@ -14,7 +14,7 @@ _Social media_
 
 <a rel="me" href="https://mastodon.social/@Nintendult">Mastodon</a>
 
-[Threads](https://www.threads.net/@nintendult)
+<a rel="me" href="https://www.threads.net/@nintendult">Threads</a>
 
 [Bluesky](https://bsky.app/profile/nintendult.xyz)
 
