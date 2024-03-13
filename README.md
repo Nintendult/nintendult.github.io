@@ -21,5 +21,3 @@ _Social media_
 [All socials](/social-media)
 
 ----
-
-202X NTNDLT FACTORY
