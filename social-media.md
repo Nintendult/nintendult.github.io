@@ -19,7 +19,9 @@ I cannot guarantee that all of these pages will be consistently active.
 
 [TikTok](https://www.tiktok.com/@nintendult)
 
-(If you see an account claiming to be me on any other platform, it is probably not me.)
+[Letterboxd](https://letterboxd.com/nintendult/)
+
+(If you see an account claiming to be me on any other platform, it is probably not me. I'm not on Twitter.)
 
 ----
 

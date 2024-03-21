@@ -4,7 +4,10 @@
 
 ----
 
-[MUSIC](https://linktr.ee/nintendult)
+_About me_
+
+Sometimes I make [music](https://linktr.ee/nintendult).
+I also run [French House Hub](https://www.frenchhousehub.xyz/).
 
 ----
 
