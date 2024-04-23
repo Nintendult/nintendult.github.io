@@ -6,7 +6,7 @@
 
 _About me_
 
-Sometimes I make [music](https://linktr.ee/nintendult).
+Sometimes I make [music](https://linktr.ee/stareffect).
 I also run [French House Hub](https://www.frenchhousehub.xyz/).
 
 ----
