@@ -24,3 +24,5 @@ _Social media_
 [All socials](/social-media)
 
 ----
+
+My opinions are my own and do not reflect those of my employers.
