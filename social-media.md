@@ -11,8 +11,6 @@ I cannot guarantee that all of these pages will be consistently active.
 
 [Bluesky](https://bsky.app/profile/nintendult.xyz)
 
-[Tumblr](https://blog.nintendult.xyz/)
-
 [YouTube](https://www.youtube.com/nintendult)
 
 [Twitch](https://www.twitch.tv/nintendult)
